@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ayanmanna.8378@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1onQAVKksaL3BnlROPi-zyx3ogdLjihIQ/view?usp=sharing](https://drive.google.com/file/d/1onQAVKksaL3BnlROPi-zyx3ogdLjihIQ/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1wTnAN74AgaNMXEOJ8gNolF-vvVUAbDVu/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
